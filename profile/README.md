@@ -2,7 +2,7 @@
 
 ## About Us
 
-The most reliable and realistic agent in the region. 
+The most reliable and realistic customer agent in the region. 
 
 ## Contact Us
 
