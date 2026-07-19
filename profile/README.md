@@ -2,7 +2,7 @@
 
 ## About Us
 
-Mawj AI specializes in AI-driven automation designed to enhance business operations. Our solutions focus on automating interactions, providing seamless and natural conversations, and supporting multiple languages, including Saudi dialects. We assist businesses with tasks such as customer service, booking, ticketing, and outbound calls.
+The most reliable and realistic agent in the region. 
 
 ## Contact Us
 
